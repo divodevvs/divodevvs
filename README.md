@@ -1,5 +1,8 @@
 ## Hi, I'm DƎV!!
-
+- he/him // 21 // transmasc puppydog
+<img
+- hi I'm DƎV!! // 21 // transmasc puppydog // very friendly, but VERY skittish/shy and socially anxious., please int first! // if i dont see a whisp, im on rblx
+- very friendly, but VERY skittish/shy and socially anxious., please int first!
 <!--
 **divodevvs/divodevvs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
